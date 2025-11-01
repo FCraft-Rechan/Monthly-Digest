@@ -7,4 +7,4 @@ I'll update my own idea here.
 
 If any suggestions or ideas: rechan_music@163.com
 
-**Love and Share ~ **
+**Love and Share ~** 
