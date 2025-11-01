@@ -1,4 +1,6 @@
-十月月报（ Yc Reports 2 ）
+来时日志（ Traces Notes ）
+
+十月月报（ Yc Journal #2 - October ）
 
 十月月报，堂堂更新！
 
